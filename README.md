@@ -1,1 +1,1 @@
-# Tech--stanbul-Bitirme-Projesi
+# Tech-İstanbul-Bitirme-Projesi
